@@ -36,7 +36,7 @@ Inspirational Reads: Tell us about books that touched your heart or made you see
 4. Lord of the Rings
 5. Percy Jackson and the Olympians
 6. Hunter×Hunter
-
+7. Game of Thrones
    
 
 
